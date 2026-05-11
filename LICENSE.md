@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with elite Vegas Pro for PC | Vegas Pro for Windows Addon | multi-cam-editing + timeline-editing, the #1 addon. Includes
 
 
 
